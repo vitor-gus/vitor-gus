@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm Vitor Gustavo 🖖🏽
 
 <div align="center">
   <a href="https://github.com/vitor-gus">
